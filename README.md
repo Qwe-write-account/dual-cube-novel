@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/0422fac3-ed69-4aed-8b36-793306e98877) #  原作者：倒霉蛋阿古朵
+![image](https://github.com/user-attachments/assets/0422fac3-ed69-4aed-8b36-793306e98877) # 原作者：倒霉蛋阿古朵
 #  续写版！
 # 《双人方块求生，性感萝莉终成娇妻》小说衍生版
 
