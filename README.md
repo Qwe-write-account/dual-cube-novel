@@ -1,5 +1,5 @@
 ![image](https://github.com/user-attachments/assets/0422fac3-ed69-4aed-8b36-793306e98877) 
-#续写版！
+#  续写版！
 # 《双人方块求生，性感萝莉终成娇妻》小说衍生版
 
 > 作者：Qwe-write-account  
