@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/0422fac3-ed69-4aed-8b36-793306e98877) 续写版！
+![image](https://github.com/user-attachments/assets/0422fac3-ed69-4aed-8b36-793306e98877) ##续写版！
 # 《双人方块求生》小说衍生版
 
 > 作者：Qwe-write-account  
@@ -29,6 +29,6 @@
 
 喜欢本作品可以点个 Star 鼓励一下！  
 欢迎在 Issues 中留言交流！
-font color="red">本项目为同人小说创作，仅供学习和娱乐使用。</font>
+本项目为同人小说创作，仅供学习和娱乐使用！
 
 > 本作品为非商业性创作，版权归原作作者所有。如有侵权请联系删除。
