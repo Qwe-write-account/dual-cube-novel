@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/0422fac3-ed69-4aed-8b36-793306e98877)
 # 《双人方块求生》小说衍生版
 
 > 作者：Qwe-write-account  
