@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/0422fac3-ed69-4aed-8b36-793306e98877) 原作者：倒霉蛋阿古朵
 #  续写版！
-# 《双人方块求生，性感萝莉终成娇妻》小说衍生版
+# 《双人 方块 求生，性感 萝莉 终成 娇妻》小说衍生版
 
 > 作者：Qwe-write-account  
 > 类型：科幻、轻松搞笑、末日生存、恋爱日常  
